@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Jordannya 😁
+## Bem-vindo(a) ao perfil da Jordannya ❤️
 
  <div>
    <a href="https://github.com/Jordannya">
